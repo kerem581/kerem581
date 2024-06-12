@@ -2,7 +2,7 @@
 - 👀 I’m interested in virus and poop
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on No one
-- 📫 How to reach me a diary
+- 📫 How to reach me poop?
 - 😄 Pronouns: A bulid diary
 - ⚡ Fun fact: Reading books and look GitHub
 
