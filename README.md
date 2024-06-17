@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kerem581
+- 👋 Hi, I’m Rick Astley
 - 👀 I’m interested in virus and poop
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on No one
